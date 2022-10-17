@@ -4,7 +4,7 @@ Məmmədli Amin - https://www.linkedin.com/in/amin-m%C9%99mm%C9%99dli-a23aba252
 
 Abdullayeva Raziyə - https://www.linkedin.com/in/raziy%C9%99-abdullayeva-399ab9252
 
-Kərimov Kərim  - https://www.linkedin.com/in/k%C9%99rim-k%C9%99rimov-5679a4252
+Kərimov Kərim  - https://www.linkedin.com/in/kərim-kərimov-ab8776253
 
 Hacıyev Əyyub - https://www.linkedin.com/in/eyubun-linkedn-adresi
 
